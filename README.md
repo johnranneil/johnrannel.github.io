@@ -1,1 +1,0 @@
-# johnrannel.github.io
